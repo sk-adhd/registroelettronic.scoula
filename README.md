@@ -1,0 +1,1 @@
+# registroelettronic.scoula
